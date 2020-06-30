@@ -1,2 +1,2 @@
 # Bud Spencer
-
+Bud Spencer ist ein grandioser Schauspieler. Er ist oft an der Seite von Terence Hill in Filmen zusehen. Die Rolle als Vielfraﬂ und Schl‰ger steht ihm gut. Leider ist der ehemalige Leistungsschwimmer bereits verstorben.
